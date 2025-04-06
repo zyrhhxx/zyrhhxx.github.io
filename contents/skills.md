@@ -1,4 +1,4 @@
-**Languages:** English (IELTS 6.5), Chinese (Native)
+**Languages:** English (Passed both CET-4 and CET-6), Chinese (Native)
 
 **Programming:** Python, C++, Java
 
