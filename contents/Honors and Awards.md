@@ -1,0 +1,4 @@
+- *2021-2022, 2023-2024* National Inspirational Scholarship, Beijing University of Posts and Telecommunications
+- *2023-2024，2024-2025* Excellent Communist Youth League Cadre
+- *2022* Third Prize of the Beijing Challenge Cup
+- *2023-2024* School-level Model Student, Beijing University of Posts and Telecommunications
